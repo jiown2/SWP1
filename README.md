@@ -1,1 +1,2 @@
-20243184
+20243184 Choi Jiwon
+Kookmin Univ. SW
