@@ -1,2 +1,2 @@
-20243184 Choi Jiwon 
+Choi Jiwon
 Kookmin Univ. AI
